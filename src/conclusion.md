@@ -1,5 +1,8 @@
 # Conclusion
 
+Conclusion
+==========
+
 Building trust-based workplace relationships is essential for creating a positive and productive work environment. Trust-based workplace relationships involve building strong and meaningful connections among colleagues, based on mutual respect, honesty, and reliability. In this book, we explored the importance of building trust-based workplace relationships for personal and professional development, as well as strategies for achieving these relationships.
 
 Summary of Key Points
