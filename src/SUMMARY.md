@@ -3,7 +3,6 @@
 - [Chapter 1: Introduction](README.md)
   - [Importance of building trust-based workplace relationships for personal and professional development](chapter-1-1.md)
   - [Benefits of trust-based workplace relationships for workplace productivity and success](chapter-1-2.md)
-  - [Overview of the book](chapter-1-3.md)
 - [Chapter 2: Understanding Trust-based Workplace Relationships](chapter-2.md)
   - [Definition of trust-based workplace relationships](chapter-2-1.md)
   - [The impact of trust-based workplace relationships on personal and professional development](chapter-2-2.md)
