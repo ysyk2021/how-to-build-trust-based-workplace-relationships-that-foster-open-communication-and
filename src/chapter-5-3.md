@@ -1,5 +1,3 @@
-Using Feedback and Conflict Resolution Techniques
-===========================================================================================================
 
 Using feedback and conflict resolution techniques is an effective way to practice empathy and emotional intelligence in the workplace. When individuals are able to communicate effectively and resolve conflicts in a constructive manner, they establish trust-based workplace relationships that promote open communication and mutual understanding. In this chapter, we will explore the role of feedback and conflict resolution techniques in practicing empathy and emotional intelligence.
 

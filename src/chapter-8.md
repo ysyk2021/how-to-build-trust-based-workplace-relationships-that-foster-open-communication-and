@@ -1,5 +1,3 @@
-Chapter 8: Managing Conflict and Resolving Issues
-=================================================
 
 Managing conflict and resolving issues is essential for building trust-based workplace relationships. When conflicts arise, it can disrupt communication and collaboration among colleagues, leading to decreased trust and productivity. In this chapter, we will explore the importance of managing conflict and resolving issues in trust-based workplace relationships, as well as strategies for doing so effectively.
 

@@ -1,5 +1,3 @@
-Chapter 10: Measuring Trust-based Workplace Relationship Success
-================================================================
 
 Measuring the success of trust-based workplace relationships is essential for ensuring that individuals and organizations are achieving their goals. By measuring success, individuals and organizations can identify areas for improvement and adjust their strategies accordingly. In this chapter, we will explore methods for measuring trust-based workplace relationship success.
 

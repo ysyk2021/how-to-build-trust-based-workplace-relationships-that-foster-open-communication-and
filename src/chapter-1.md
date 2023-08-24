@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Building trust-based workplace relationships that foster open communication and strong bonds among colleagues is essential for personal and professional growth. In this chapter, we will explore the importance of building trust-based workplace relationships, the benefits of these relationships for workplace productivity and success, and provide an overview of the book.
 

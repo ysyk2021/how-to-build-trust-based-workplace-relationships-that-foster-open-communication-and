@@ -1,5 +1,3 @@
-Chapter 7: Promoting a Positive Workplace Culture
-=================================================
 
 The Importance of Promoting a Positive Workplace Culture in Trust-Based Workplace Relationships
 -----------------------------------------------------------------------------------------------

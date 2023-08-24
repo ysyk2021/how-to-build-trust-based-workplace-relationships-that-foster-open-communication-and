@@ -1,5 +1,3 @@
-Chapter 4: Demonstrating Reliability and Consistency
-====================================================
 
 Demonstrating reliability and consistency is essential for building trust-based workplace relationships. When individuals are dependable and consistent in their actions and behaviors, they can build stronger connections with their colleagues and work together more effectively towards common goals. In this chapter, we will explore the role of demonstrating reliability and consistency in trust-based workplace relationships, as well as strategies for doing so effectively.
 

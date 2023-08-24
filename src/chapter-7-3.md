@@ -1,5 +1,3 @@
-Using Recognition and Appreciation Programs
-==============================================================================================
 
 Using recognition and appreciation programs is an effective strategy for promoting a positive workplace culture. When individuals feel valued, recognized, and appreciated for their contributions, they are more likely to have a sense of purpose and commitment in their work. In this chapter, we will explore the role of recognition and appreciation programs in promoting a positive workplace culture.
 

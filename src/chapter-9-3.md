@@ -1,4 +1,3 @@
-# Using Inclusive Language and Cultural Awareness Training
 
 In this chapter, we will explore the importance of using inclusive language and cultural awareness training in building trust-based workplace relationships. By adopting inclusive language and promoting cultural awareness, you can create an environment where everyone feels respected, valued, and included. This chapter will provide strategies and recommendations for implementing inclusive language practices and cultural awareness training in the workplace.
 

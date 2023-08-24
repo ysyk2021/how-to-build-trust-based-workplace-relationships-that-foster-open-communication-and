@@ -1,5 +1,3 @@
-Chapter 5: Practicing Empathy and Emotional Intelligence
-========================================================
 
 Practicing empathy and emotional intelligence is essential for building trust-based workplace relationships. When individuals are able to understand and respond to the emotions and needs of their colleagues, they can build stronger connections and collaborate more effectively towards shared goals. In this chapter, we will explore the importance of practicing empathy and emotional intelligence in trust-based workplace relationships, as well as strategies for doing so effectively.
 

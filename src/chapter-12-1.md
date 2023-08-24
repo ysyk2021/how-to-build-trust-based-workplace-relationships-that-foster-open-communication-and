@@ -1,5 +1,3 @@
-Summary of Key Points
-=================================
 
 In this book, we have explored the importance of building trust-based workplace relationships that foster open communication and strong bonds among colleagues. Here are some key points to remember:
 

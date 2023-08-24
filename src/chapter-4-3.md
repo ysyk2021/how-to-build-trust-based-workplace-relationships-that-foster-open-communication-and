@@ -1,4 +1,3 @@
-# Using Follow-Through and Accountability
 
 In this chapter, we will explore the importance of using follow-through and accountability in building trust-based workplace relationships. Follow-through involves completing tasks and commitments consistently, while accountability entails taking responsibility for one's actions and decisions. By incorporating these principles into our professional lives, we can nurture an environment of trust, foster open communication, and cultivate strong bonds among colleagues.
 

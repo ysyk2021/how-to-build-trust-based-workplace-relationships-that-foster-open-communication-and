@@ -1,5 +1,3 @@
-Chapter 9: Supporting Diversity and Inclusion in the Workplace
-==============================================================
 
 Supporting diversity and inclusion in the workplace is essential for building trust-based workplace relationships. When individuals feel valued and respected for their unique backgrounds and perspectives, they are more likely to trust and collaborate with their colleagues. In this chapter, we will explore the role of supporting diversity and inclusion in trust-based workplace relationships, as well as strategies for promoting diversity and inclusion in the workplace.
 

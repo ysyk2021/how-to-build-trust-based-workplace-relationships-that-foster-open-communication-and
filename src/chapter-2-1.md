@@ -1,5 +1,3 @@
-Definition of Trust-based Workplace Relationships
-===============================================================================================================
 
 Trust-based workplace relationships are essential for creating a positive and productive work environment. They involve building strong and meaningful connections among colleagues, based on mutual respect, honesty, and reliability. In this chapter, we will explore the definition of trust-based workplace relationships.
 

@@ -1,5 +1,3 @@
-Chapter 3: Building Trust Through Authentic Communication
-=========================================================
 
 The Importance of Building Trust through Authentic Communication in Trust-Based Workplace Relationships
 -------------------------------------------------------------------------------------------------------

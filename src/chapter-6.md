@@ -1,5 +1,3 @@
-Chapter 6: Encouraging Collaboration and Teamwork
-=================================================
 
 The Role of Encouraging Collaboration and Teamwork in Trust-Based Workplace Relationships
 -----------------------------------------------------------------------------------------

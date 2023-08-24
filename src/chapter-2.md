@@ -1,5 +1,3 @@
-Chapter 2: Understanding Trust-Based Workplace Relationships
-============================================================
 
 Definition of Trust-Based Workplace Relationships
 -------------------------------------------------

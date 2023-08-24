@@ -1,5 +1,3 @@
-Using Conflict Resolution and Problem-Solving Frameworks
-===========================================================================================================
 
 Conflict is a natural part of any workplace, but managing conflict and resolving issues effectively is essential for building trust-based workplace relationships. In this chapter, we will explore conflict resolution and problem-solving frameworks that individuals can use to manage conflict and resolve issues in the workplace.
 

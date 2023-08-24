@@ -1,5 +1,3 @@
-Strategies for Using Trust-based Workplace Relationship Skills to Advance Your Career
-===========================================================================================================================================================================
 
 Trust-based workplace relationship skills are essential for career advancement. Individuals who can build strong relationships with colleagues and work effectively in teams are more likely to be successful in their careers. In this chapter, we will explore strategies for using trust-based workplace relationship skills to advance your career.
 

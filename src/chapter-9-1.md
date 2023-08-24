@@ -1,5 +1,3 @@
-The Role of Supporting Diversity and Inclusion in Trust-based Workplace Relationships
-=====================================================================================================================================================
 
 Supporting diversity and inclusion is critical for building trust-based workplace relationships. When individuals embrace and celebrate differences among colleagues, they establish a foundation of mutual respect and understanding that can lead to more effective collaboration, improved productivity, and greater job satisfaction. In this chapter, we will explore the role of supporting diversity and inclusion in trust-based workplace relationships.
 
