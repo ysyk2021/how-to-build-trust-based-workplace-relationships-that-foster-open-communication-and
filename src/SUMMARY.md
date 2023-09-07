@@ -44,3 +44,5 @@
   - [Strategies for using trust-based workplace relationship skills to advance your career](chapter-11-2.md)
   - [Demonstrating leadership and teamwork skills](chapter-11-3.md)
 - [Conclusion](conclusion.md)
+- [Contacts](contacts.md)
+- [Our Other Books](other-books.md)
